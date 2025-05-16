@@ -1,1 +1,5 @@
-# Activity-No.-DSA--Perf4
+Sea and Falls are two natural forms of water that people often go to to rest and relax. In my view, there are reasons why I really like these two. 
+First of all, the sea is a place where I feel so much that I don't feel like somewhere else. 
+The wide lake of water blue gives me a sense of freedom and peace. The sound of the waves that led to the beach relieves stress and fatigue in my body and mind. Watching the beach gives me the opportunity to think and reflect on things in my life. 
+Falls are a natural form of water that gives me unique pleasure and beauty. Cold water falling from the height relieves the heat and tiredness of my body. The sound of flowing water relaxes and makes my heart happy. Jumping under the falls and watering gives me a feeling of being free and strong. 
+Sea and Falls are two natural forms of water with its own beauty and importance. These are not only a simple place to go to rest and to have fun, but they are also spaces that give us inspiration and pleasure. Therefore, it is not surprising that I love these two and will continue to come back to experience their beauty and power
